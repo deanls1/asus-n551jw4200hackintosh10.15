@@ -2,7 +2,7 @@
 
 asus n551jw4200hackintosh黑苹果10.15 98%完美
 
-以下是一些截图
+以下是一些截图:
 
 ![image](https://xc.deanlovesam.cn/screen/1.png)
  
